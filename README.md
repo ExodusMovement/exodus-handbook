@@ -1,2 +1,2 @@
 # Exodus Handbook
-Exodus Company Handbook
+### Exodus Company Handbook
