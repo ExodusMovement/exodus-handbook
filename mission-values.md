@@ -17,7 +17,7 @@ The blockchain, for the first time in history, has created a movement to shift p
 
 ## Our Mission 
 
-By 2030, half of the planet will Exodus the traditional financial system.
+By 2030, help half of the planet exit the legacy financial system.
 <br/>
 
 ## Our Values 
