@@ -39,7 +39,7 @@ We have shipped updates to our products every other week since December 9th, 201
 We go above and beyond to improve the experience of our customers, candidates, and employees. We put ourselves in the shoes of the people we interact with, and this allows to not only better understand their needs, but exceed their expectations. We know they are putting their money in our care, and we are commited to take the best care of it, and them in the process.
 
 
-### Always Candid
+### Constructive Candor
 
 We are willing to question the status quo and give meaningful, honest feedback. When providing feedback, we are thoughtful, compassionate and always give the other person the benefit of the doubt. Because we keep integrity at the forefront of everything we do, being transparent with one another is incredibly important. 
 
